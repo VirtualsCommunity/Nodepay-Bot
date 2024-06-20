@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @VirtualsCommunity
+- 👀 I’m interested in learning new things, finding ways to make my server better.
+- 🌱 I’m currently learning {}
+- 💞️ I’m looking to collaborate on any streaming platform.
+- 📫 How to reach me check my URL'S and you can join my server, ill be there most of the time!
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
